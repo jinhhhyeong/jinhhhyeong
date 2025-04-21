@@ -1,5 +1,8 @@
-## Hi there 👋
+## Introduction
 
+### Sports
+
+[STRAVA](https://www.strava.com/athletes/164157078)
 <!--
 **jinhhhyeong/jinhhhyeong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
