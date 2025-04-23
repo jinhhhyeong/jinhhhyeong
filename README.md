@@ -1,5 +1,9 @@
 ## Introduction
 
+### Social Media
+
+[Instagram](https://www.instagram.com/jinhhhyeong?igsh=amxxZ3djaWQxa2Ew&utm_source=qr)
+
 ### Sports
 
 [STRAVA](https://www.strava.com/athletes/164157078)
